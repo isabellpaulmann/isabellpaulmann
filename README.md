@@ -1,6 +1,6 @@
 ## Hallo, ich bin Isabell :unicorn:
 
-Ich begeistere mich für das **WWW** mit all seinen Facetten. 
+Ich begeistere mich für das **WWW** mit seinen vielen Facetten. 
 
 ___
 **Über mich:**
