@@ -7,7 +7,7 @@ ___
 
 *Wo lebe ich?*
 
-:house: aktuell: Ilsede - neue Wahlheimat: Schwerin
+:house: Schwerin
 
 *Was mache ich in meiner Freizeit?*
 
